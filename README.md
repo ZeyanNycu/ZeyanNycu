@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I am currently joining the MPAC Laboratory at the Graduate Institute of Communication Engineering, National Taiwan University. I am currently accumulating domain knowledge through my coursework✏️. Additionally, I am actively seeking opportunities to apply my skills in work, research, or daily life🗃️🗃️🗃️.If you are interested in collaborating after reviewing my project, feel free to contact me.
+
+### 📫 How to reach me: ###
